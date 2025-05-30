@@ -1,1 +1,1 @@
-Do not use this website. It is bad.
+Do use this website. It is good.
